@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TurnxloVel
+- 👀 I’m interested in.  💞️   
+- 🌱 I’m currently learning PYthon
